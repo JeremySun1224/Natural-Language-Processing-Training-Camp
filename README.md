@@ -1,2 +1,2 @@
 # Natural-Language-Processing-Training-Camp
-The last chance for you to change yourself.
+This is your last chance to change yourself, stick with it, please!
